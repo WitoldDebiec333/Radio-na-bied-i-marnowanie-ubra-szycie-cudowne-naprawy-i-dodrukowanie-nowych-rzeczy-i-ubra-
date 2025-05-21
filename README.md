@@ -1,2 +1,3 @@
 # Radio-na-bied-i-marnowanie-ubra-szycie-cudowne-naprawy-i-dodrukowanie-nowych-rzeczy-i-ubra-
 Diakonesy i modealesy jak chcą dużo marnować ubrań i rzeczy kocy szali i płaszczy i Polarów i swetrów dostaną jak Wojsko i skarbówka i kler radio do marnowania i marnostrastwa rzeczy i ubrań i ich serwisowania i naprawy. Pomocy dostanie rachunki od projektantów mody krawców i szwalni i serwisów za bycie dobrym świentym mikołajem jak Rovaniemi w Finlandi.  
+Marnostrastwo tylko na radio M5Stack CardComputer i M5Stack wyświetlacz procersor na radio internetu rzeczy. Czas na kapitalizm a nie na komunizm czy socjalizm sklepowo magazynowy. 
